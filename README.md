@@ -1,7 +1,7 @@
 # Notes for Michael Martin Murphey's Cowboy Christmas Tour, 2024
 
 Come to the show and see Michael Martin Murphey's band, with Sharon and Neal dancing!
-Background and details at
+Pictures, background and details at
 [Rocky Mountain Vintage Dancers / Guli Productions / River Crossing invitation](rocky-mountain-vintage-dancers.html)
 
 More information:
